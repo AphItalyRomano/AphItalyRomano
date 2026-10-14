@@ -24,7 +24,7 @@ $\color{#5751c1}\textsf{・・・・・・・・・・・・・・・・・・�
 
 $\color{#9aade4}\textsf{𓏵‧₊˚ ┊ ⤷ ゛}$***INTERESTS***  $\color{#9aade4}\textsf{⋆｡˚}$ 
 
-$\color{#9aade4}\textsf{𝄢 |}$ I'm a biiig Romano kinnie and I'm too old to care about doubles lol  ˚.🍅 ᵎᵎ
+$\color{#9aade4}\textsf{𝄢 |}$ I'm a huge Romano kinnie and I'm too old to care about doubles lol  ˚.🍅 ᵎᵎ
 
 $\color{#5751c1}\textsf{𝄢 |}$ **current interests**: Undertale, Deltarune, Hetalia, Omori, Hollow Knight, DDLC, Splatoon, Chiikawa, typology...
 
