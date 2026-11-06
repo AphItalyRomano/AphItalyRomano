@@ -16,7 +16,7 @@ $\color{#5751c1}\textsf{☾ |}$ My native lenguage is spanish but I also can spe
 
 $\color{#9aade4}\textsf{☾ |}$ I'll always be c+h even with friends, but I won't start any conversations. Sorry, I'm awkward, I might sound cold but I'm nice, promise...
 
-$\color{#5751c1}\textsf{☾ |}$ I'm mostly in Hetalia area, but I'm also in Undertale and typology area.
+$\color{#5751c1}\textsf{☾ |}$ I'm mostly in Hetalia area, but I'm also in Undertale, JJBA and typology area.
 
 $\color{#9aade4}\textsf{☾ |}$  $\color{#ff0000}\large{\textsf{DNI}}$: racists, pedophiles, LGBTQ+phobics, ableists, antifeminists, israel supporters, AI supporters, proshippers (yes, this includes spamano and usuk)... 
 
@@ -26,7 +26,7 @@ $\color{#9aade4}\textsf{𓏵‧₊˚ ┊ ⤷ ゛}$***INTERESTS***  $\color{#9aad
 
 $\color{#9aade4}\textsf{𝄢 |}$ I'm a huge Romano kinnie and I'm too old to care about doubles lol  ˚.🍅 ᵎᵎ
 
-$\color{#5751c1}\textsf{𝄢 |}$ **current interests**: Undertale, Deltarune, Hetalia, Omori, Hollow Knight, DDLC, Splatoon, Chiikawa, typology...
+$\color{#5751c1}\textsf{𝄢 |}$ **current interests**: Undertale, Deltarune, Hetalia, Omori, Hollow Knight, JJBA, DDLC, Splatoon, Chiikawa, typology...
 
 $\color{#9aade4}\textsf{𝄢 |}$ **My typology**: sp/sx 4w5 469 ESI ISFP EFVL³⁴⁴² [R]/L/uAi
 
